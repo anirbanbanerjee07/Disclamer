@@ -1,1 +1,1 @@
-# Disclamer!
+# Disclaimer!
